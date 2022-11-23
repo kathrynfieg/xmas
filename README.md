@@ -30,4 +30,6 @@
 
 ![2](https://user-images.githubusercontent.com/47712157/203472536-779a1ecb-8801-4a56-aa54-73ca67b25ef3.png)
 
+![Copy of Blue Yellow Minimalist Content Strategist LinkedIn Banner (2)](https://user-images.githubusercontent.com/47712157/203485113-cbc1e01a-0363-4fa7-beae-29383e63af1f.gif)
+
 
