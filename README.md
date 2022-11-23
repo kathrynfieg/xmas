@@ -21,3 +21,5 @@
 ![Falling-Snowflake-Animation](https://user-images.githubusercontent.com/47712157/203451294-605245d5-a599-43de-aa38-29ba0f9f6156.gif)
 
 ![d97ja6-09721927-d991-470b-8a6e-e6204823788c](https://user-images.githubusercontent.com/47712157/203451320-f4581400-81b7-432a-bf4f-b476e3b38eb2.gif)
+
+![Blue Yellow Minimalist Content Strategist LinkedIn Banner](https://user-images.githubusercontent.com/47712157/203454922-2ada7a1d-91c1-482f-9172-0cc7605fde8f.gif)
