@@ -29,3 +29,5 @@
 ![Copy of Blue Yellow Minimalist Content Strategist LinkedIn Banner (200 × 200 px)](https://user-images.githubusercontent.com/47712157/203472302-4ea4b1b2-083f-4dd3-97ff-9e0fd56119d4.png)
 
 ![Copy of Blue Yellow Minimalist Content Strategist LinkedIn Banner (1)](https://user-images.githubusercontent.com/47712157/203472344-7c3100bc-f7f2-41cd-bf7f-83674db2b870.gif)
+
+![Copy of Blue Yellow Minimalist Content Strategist LinkedIn Banner (200 × 200 px)](https://user-images.githubusercontent.com/47712157/203472405-1ba914f6-5c23-4ed0-924e-29f623e62ba5.png)
