@@ -57,5 +57,4 @@
 ![Copy of Blue Yellow Minimalist Content Strategist LinkedIn Banner (5)](https://user-images.githubusercontent.com/47712157/203691320-e57c5cda-5415-4d2d-a551-72c105b3d5a0.gif)
 
 
-![Untitled design (3)](https://user-images.githubusercontent.com/47712157/203691331-a206a904-9971-473d-8841-b3fd712fc70b.gif)
 
