@@ -54,6 +54,10 @@
 
 ![output-onlinegiftools (7)](https://user-images.githubusercontent.com/47712157/203656619-a313abb4-8ce3-463f-af1c-b24937358f08.gif)
 
+![Copy of Blue Yellow Minimalist Content Strategist LinkedIn Banner (5)](https://user-images.githubusercontent.com/47712157/203690604-7b3d5cee-126a-4d0e-9f3e-11acea264287.gif)
+
+
+![Copy of Blue Yellow Minimalist Content Strategist LinkedIn Banner (4)](https://user-images.githubusercontent.com/47712157/203690637-c50d9a47-4496-459f-8cab-b6dfa9b66d5d.gif)
 
 
 
